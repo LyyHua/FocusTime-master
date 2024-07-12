@@ -1,2 +1,1 @@
-Freaky ass bitch
-Stalking my github. Go somewhere else
+Yeah i'm fucking cooked as this fucking point
